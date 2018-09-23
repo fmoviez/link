@@ -1,0 +1,2 @@
+# link
+tempat safelink
